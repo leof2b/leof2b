@@ -14,5 +14,5 @@ alurastartestudante@email.com
 
 @alurastartestudante
 
-![]()
+![](https://media1.tenor.com/m/wa6oTC6T3EAAAAAC/ragnarskol.gif)
  
